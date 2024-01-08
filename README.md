@@ -1,6 +1,4 @@
-hi hi hello!! pony town peopl e...
-my name is xeno ^_^ i lovetv girl
-u can learn more in my carrd linked. have an awesome day :3
+brad petering....
 
 <!---
 tvgirlz/tvgirlz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
